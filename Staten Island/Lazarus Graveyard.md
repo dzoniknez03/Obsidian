@@ -1,1 +1,0 @@
-The graveyard is located on the south side of [[Staten Island]]. The man in charge of the graveyard is [[Priest Marco]]. His right hand man 
